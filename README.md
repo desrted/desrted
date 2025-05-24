@@ -20,7 +20,7 @@
 <br /> int⠀with⠀Grian's !⠀I'm⠀not⠀like
 <br /> those⠀Tommy's⠀with⠀' Dream⠀DNI '
 <br /> in⠀their⠀names .⠀This⠀is⠀just
-<br /> a <ins>personal⠀preference</ins>⠀and⠀how I
+<br /> a⠀<ins>personal⠀preference</ins>⠀and⠀how I
 <br /> feel⠀from⠀past⠀experiences .
 <br /> I⠀wont⠀be⠀rude⠀just⠀because
 <br /> you're⠀a⠀Grian⠀on⠀a⠀pony⠀game !⠀: )
