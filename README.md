@@ -1,10 +1,10 @@
 "  And⠀if⠀I⠀were⠀*someone⠀else* , , ,  "
 
-👒⠀⠀┈⠀⠀SCAR⠀／⠀JINX⠀／⠀PRAIRIE .
+👒⠀⠀┈⠀⠀SC*AR*⠀／⠀**JINX**⠀／⠀*PRAIR*IE .
 <br>
-<br>⠀⠀⠀⠀he⠀⠀⠀⠀⠀⠀it⠀⠀⠀⠀⠀⠀sun
+<br>⠀⠀⠀⠀h*e*⠀⠀⠀⠀⠀⠀<ins>it</ins>⠀⠀⠀⠀⠀⠀sun
 <br>
-<br>⠀⠀⠀⠀⠀⠀⠀⠀hym⠀⠀⠀⠀luck
+<br>⠀⠀⠀⠀⠀⠀⠀⠀hym⠀⠀⠀⠀l*u*ck
 <br>
 <br>
 "  Would⠀this⠀be⠀***easier*** , , , ?  "⠀ ⠀[: ( .](https://open.spotify.com/track/5YkZPYInGxp1kK6gbH85NK?si=a28a0486b2b74d77)
