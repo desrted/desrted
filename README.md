@@ -3,13 +3,14 @@
 👒⠀⠀┈⠀⠀SCAR⠀/⠀JINX⠀/⠀PRAIRIE .
 <br>
 <br>⠀⠀⠀⠀he⠀⠀⠀⠀⠀⠀it⠀⠀⠀⠀⠀⠀sun
-<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
+<br>
 <br>⠀⠀⠀⠀⠀⠀⠀⠀hym⠀⠀⠀⠀luck
 <br>
 <br>
 "  Would⠀this⠀be⠀***easier*** , , , ?  "⠀ ⠀[: ( .](https://open.spotify.com/track/5YkZPYInGxp1kK6gbH85NK?si=a28a0486b2b74d77)
-<br>
-<br>
+
+<br>◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
+
 🎀⠀<ins>Pref</ins>.⠀ if⠀Grian's⠀DNI⠀unless⠀friend.
 <br /> Nothing⠀personal,⠀though⠀<ins>some</ins>⠀of
 <br /> you⠀tend⠀to⠀be⠀quite⠀weird,⠀esp.
@@ -23,6 +24,8 @@
 <br /> feel⠀from⠀past⠀experiences .
 <br /> I⠀wont⠀be⠀rude⠀just⠀because
 <br /> you're⠀a⠀Grian⠀on⠀a⠀pony⠀game !⠀: )
+
+<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
 
 <br> 
 Some⠀of⠀my⠀personal⠀favourite⠀songs :
