@@ -10,12 +10,12 @@
 "  Would⠀this⠀be⠀***easier*** , , , ?  "⠀ ⠀[: ( .](https://open.spotify.com/track/5YkZPYInGxp1kK6gbH85NK?si=a28a0486b2b74d77)
 <br>
 <br>
-<ins>Pref</ins>.⠀ if⠀Grian's⠀DNI⠀unless⠀friend.
+🎀⠀<ins>Pref</ins>.⠀ if⠀Grian's⠀DNI⠀unless⠀friend.
 <br /> Nothing⠀personal,⠀though⠀<ins>some</ins>⠀of
 <br /> you⠀tend⠀to⠀be⠀quite⠀weird,⠀esp.
 <br /> when⠀it⠀comes⠀to⠀Scars.⠀ 𓈊
 <br />
-<br /> Note : ⠀I⠀am⠀still⠀willing⠀to
+<br /> 🔮⠀<ins>Note</ins> : ⠀I⠀am⠀still⠀willing⠀to
 <br /> int⠀with⠀Grian's !⠀I'm⠀not⠀like
 <br /> those⠀Tommy's⠀with⠀' Dream⠀DNI '
 <br /> in⠀their⠀names .⠀This⠀is⠀just
