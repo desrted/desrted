@@ -3,7 +3,7 @@
 👒⠀⠀┈⠀⠀SCAR⠀/⠀JINX⠀/⠀PRAIRIE .
 <br>
 <br>⠀⠀⠀⠀he⠀⠀⠀⠀⠀⠀it⠀⠀⠀⠀⠀⠀sun
-<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
+<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
 <br>⠀⠀⠀⠀⠀⠀⠀⠀hym⠀⠀⠀⠀luck
 <br>
 <br>
@@ -23,3 +23,17 @@
 <br /> feel⠀from⠀past⠀experiences .
 <br /> I⠀wont⠀be⠀rude⠀just⠀because
 <br /> you're⠀a⠀Grian⠀on⠀a⠀pony⠀game !⠀: )
+
+<br> 
+Some⠀of⠀my⠀personal⠀favourite⠀songs :
+<br> 
+<br> 
+<br/> O1 .⠀⠀Easier⠀⠀━⠀⠀The⠀Crane⠀Wives .⠀ ⠀♫
+<br/> 
+<br/> O2 .⠀⠀Strangler⠀Fig⠀⠀━⠀⠀The⠀Crane⠀Wives .⠀ ⠀♫
+<br/> 
+<br/> O3 .⠀⠀Evelyn⠀Evelyn⠀⠀━⠀⠀Evelyn⠀Evelyn .⠀ ⠀♫
+<br/> 
+<br/> O4 .⠀⠀The⠀Main⠀Character⠀⠀━⠀⠀Will⠀Wood .⠀ ⠀♫
+<br/> 
+<br/> O5 .⠀⠀Once⠀More To See You⠀⠀━⠀⠀Mitski .⠀ ⠀♫
