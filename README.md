@@ -3,7 +3,7 @@
 👒⠀⠀┈⠀⠀SCAR⠀/⠀JINX⠀/⠀PRAIRIE .
 <br>
 <br>⠀⠀⠀⠀he⠀⠀⠀⠀⠀⠀it⠀⠀⠀⠀⠀⠀sun
-<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
+<br>◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
 <br>⠀⠀⠀⠀⠀⠀⠀⠀hym⠀⠀⠀⠀luck
 <br>
 <br>
@@ -11,7 +11,7 @@
 <br>
 <br>
 <ins>Pref</ins>.⠀ if⠀Grian's⠀DNI⠀unless⠀friend.
-<br /> Nothing⠀personal,⠀though⠀most⠀of
+<br /> Nothing⠀personal,⠀though⠀<ins>some</ins>⠀of
 <br /> you⠀tend⠀to⠀be⠀quite⠀weird,⠀esp.
 <br /> when⠀it⠀comes⠀to⠀Scars.⠀ 𓈊
 <br />
@@ -20,4 +20,6 @@
 <br /> those⠀Tommy's⠀with⠀' Dream⠀DNI '
 <br /> in⠀their⠀names .⠀This⠀is⠀just
 <br /> a <ins>personal⠀preference</ins>⠀and⠀how I
-<br /> feel⠀from⠀past⠀experiences .⠀: )
+<br /> feel⠀from⠀past⠀experiences .
+<br /> I⠀wont⠀be⠀rude⠀just⠀because
+<br /> you're⠀a⠀Grian⠀on⠀a⠀pony⠀game !⠀: )
