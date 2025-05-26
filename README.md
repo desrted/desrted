@@ -34,8 +34,8 @@ Some⠀of⠀my⠀personal⠀favourite⠀songs :
 <br/> 
 <br/> O2 .⠀⠀Strangler⠀Fig⠀⠀━⠀⠀The⠀Crane⠀Wives .⠀ ⠀♫
 <br/> 
-<br/> O3 .⠀⠀Evelyn⠀Evelyn⠀⠀━⠀⠀Evelyn⠀Evelyn .⠀ ⠀♫
+<br/> O3 .⠀⠀Hard⠀Sell⠀⠀━⠀⠀The⠀Crane⠀Wives .⠀ ⠀♫
 <br/> 
-<br/> O4 .⠀⠀The⠀Main⠀Character⠀⠀━⠀⠀Will⠀Wood .⠀ ⠀♫
+<br/> O4 .⠀⠀Placing⠀The⠀Blame⠀⠀━⠀⠀Self .⠀ ⠀♫
 <br/> 
 <br/> O5 .⠀⠀Once⠀More⠀To⠀See⠀You⠀⠀━⠀⠀Mitski .⠀ ⠀♫
